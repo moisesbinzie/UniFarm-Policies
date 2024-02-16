@@ -1,4 +1,4 @@
-# Unifarm Privacy Policy
+# **Unifarm Privacy Policy**
 
 ## Information We Collect:
 
